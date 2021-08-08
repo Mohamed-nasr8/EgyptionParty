@@ -1,2 +1,2 @@
 # Egyptian-Party
-https://eslamabdelbasset1.github.io/Egyptian-Party/
+https://mohamed-nasr8.github.io/EgyptionParty/
